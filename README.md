@@ -1,4 +1,4 @@
-# 👋 Hi, I’m Manogari.S
+# 👋 Hi, I’m Manogari Sivakumar
 - 👀 I’m interested in unspecific eccentric stuff
 - 🌱 I’m currently learning B.tech - Computer Science Engineering
 - 💞️ I’m looking to collaborate on anything interesting.
