@@ -2,7 +2,8 @@
 - 👀 I’m interested in unspecific eccentric stuff
 - 🌱 I’m currently learning B.tech - Computer Science Engineering
 - 💞️ I’m looking to collaborate on anything interesting.
-- 📫 Reach me through manogari.s@pec.edu
+- 📫 Reach me through manogari2k03@gmail.com
+- 
 <br>
 <a href="https://u8views.com/github/Manogari2003"><img src="https://u8views.com/api/v1/github/profiles/91971225/views/day-week-month-total-count.svg"></a>
 <br>
